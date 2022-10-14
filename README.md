@@ -9,6 +9,6 @@
 
 - 🔭 I’m currently working on Schedula Application
 - 💬 Please read https://nometa.xyz/ or https://www.nohello.com/ before contacting me.
-- 📫 How to reach me: tg @sodove1337, mail golub@sodove.ru, vk @sofunnydove
+- 📫 How to reach me: tg @sodovaya1337, mail golub@sodove.ru, vk @sofunnydove
 - 😄 Pronouns: was/were
 
