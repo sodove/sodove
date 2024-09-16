@@ -5,4 +5,3 @@
 
 - 💬 Please read https://nometa.xyz/ or https://www.nohello.com/ before contacting me.
 - 📫 How to reach me: tg @sodovayaaa
-- 😄 Pronouns: was/were
